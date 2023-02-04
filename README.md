@@ -1,0 +1,2 @@
+# safaris
+only for tourism
